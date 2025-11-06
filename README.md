@@ -28,8 +28,6 @@ se puder e quiser ajudar o nosso server digite !vip e vamos agradecer sua doaç�
 💎Hanic (Super-Admin)
 
 💎Baeky (Super-Admin)
-
-💎Arthur Rem's Husband (Super-Admin)
    
 💎ALAKAZAN (Super-Admin)
 
@@ -40,6 +38,8 @@ se puder e quiser ajudar o nosso server digite !vip e vamos agradecer sua doaç�
 🎖Noir
 
 🎖Pietroom
+
+🎖Arthur Rem's Husband
 
 🎖Must
 
