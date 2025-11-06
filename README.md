@@ -29,6 +29,8 @@ se puder e quiser ajudar o nosso server digite !vip e vamos agradecer sua doaç�
 
 💎Baeky (Super-Admin)
 
+💎Arthur Rem's Husband (Super-Admin)
+   
 💎ALAKAZAN (Super-Admin)
 
 ⚠️aba de admins⚠️
