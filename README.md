@@ -26,7 +26,9 @@ se puder e quiser ajudar o nosso server digite !vip e vamos agradecer sua doaç�
 ✨️Aba de Super-Admins✨️
 
 💎Hanic (Super-Admin)
+
 💎Baeky (Super-Admin)
+
 💎ALAKAZAN (Super-Admin)
 
 ⚠️aba de admins⚠️
